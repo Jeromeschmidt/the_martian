@@ -1,0 +1,1 @@
+An astronaut(Matt Damon) gets stranded on Mars and needs to find a way to survive until NASA can organize and execute a rescue mission. The character Matt Damon plays is a well liked Botanist who is able to start a farm inside the habitat he is living.
